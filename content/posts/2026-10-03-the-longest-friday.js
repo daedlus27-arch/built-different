@@ -66,7 +66,7 @@ Big shout-out to the deputies who showed up and to the Fire Metro crew who colla
 
 Funniest part? Same intersection where me and R. first met. Full circle. Romantic, almost, if you squint and ignore the blood.
 
-:::callout post="everyone-hated-on-my-bike"
+:::callout
 Bike status as of today: we don't talk about the bike.
 :::
 
